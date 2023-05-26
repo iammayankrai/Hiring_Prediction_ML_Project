@@ -105,8 +105,6 @@
    
     
 
-![image](https://user-images.githubusercontent.com/108053296/189940016-b2f9ffd2-ff3c-46a7-90a0-ac2929953469.png)
-
    
  
 
